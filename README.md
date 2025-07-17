@@ -39,10 +39,6 @@ This privacy policy complies with:
 - CCPA (California Consumer Privacy Act)
 - Other applicable privacy laws
 
-## 📞 Contact
-
-For questions about privacy or the app, please contact: [Insert your email]
-
 ---
 
 **Keep those paws safe!** 🐾
